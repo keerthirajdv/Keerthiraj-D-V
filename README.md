@@ -7,7 +7,7 @@
 
 📫 How to reach me <strong> +91 8971206973 </strong> 
 
-📧 mail me <strong> keerthirajdv2000@gmail.com </strong>
+📧 Mail me <strong> keerthirajdv2000@gmail.com </strong>
 <br />
 <h3 align="left">Connect with me:</h3>
 <p align="left">
